@@ -1,0 +1,1 @@
+MY CV1 - https://igortishkov.github.io/rsschool-cv/cv
